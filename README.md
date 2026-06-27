@@ -15,7 +15,7 @@
 <img src="https://64.media.tumblr.com/d7a4a1e1df6e05200cf7f028eff5f6f0/7369cee02740f7d0-b0/s75x75_c1/d5d2ebbf214714a4710ad8c15db8829633fc0e75.gifv" />
 </p>
 <p align="center"> 
-﹕ 　 ⤷　<a href="https://rentry.co/placeholder/">rentry</a>　 ˇ 　 ⩩ 　 <a href="https://unrealize.atabook.org/">atabook</a>　 ✦ 　 
+﹕ 　 ⤷　<a href="https://rentry.co/facialbones/">rentry</a>　 ˇ 　 ⩩ 　 <a href="https://unrealize.atabook.org/">atabook</a>　 ✦ 　 
 <img src="https://64.media.tumblr.com/2c4a15b641296146ec271612dc7a062b/8cfd1f618a490d71-36/s75x75_c1/d974b119ef131b9b0927740ce75e30c653765a6f.gifv" />
 
 </p>
